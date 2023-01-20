@@ -7,4 +7,4 @@
 - 💬 Ask me about how I see the future
 - 📫 How to reach me: giorgio1099@gmail.com
 - 😄 Pronouns: He/His
-- ⚡ Fun fact: There are more nipples than people in the world
+- ⚡ Fun fact: It's a dirt ball that floats in space
